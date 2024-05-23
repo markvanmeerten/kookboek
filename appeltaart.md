@@ -1,10 +1,10 @@
 ## Ingredienten
 
-1kg appels
-500gram suiker
-250gram boter
-1kg meel
-1kg eieren
+1kg apples
+500gram sugar
+250gram butter
+1kg flout
+1kg eggs
 
 ## Instructies
 

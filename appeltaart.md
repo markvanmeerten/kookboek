@@ -1,8 +1,8 @@
 ## Ingredienten
 
 1kg appels
-1kg suiker
-1kg boter
+500gram suiker
+250gram boter
 1kg meel
 1kg eieren
 

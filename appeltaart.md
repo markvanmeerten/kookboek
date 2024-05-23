@@ -1,10 +1,10 @@
 ## Ingredienten
 
-1kg appels
-1kg suiker
-1kg boter
-1kg meel
-1kg eieren
+1kg apples
+1kg sugar
+1kg butter
+1kg flour
+1kg eggs
 
 ## Instructies
 

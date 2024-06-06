@@ -8,4 +8,4 @@
 
 ## Instructies
 
-Mix alles en gooi in de oven
+Mix alles en gooi in de oven, bak op 200 graden.
